@@ -1,19 +1,15 @@
 ## BEFORE YOU INTERACT
 
-˚₊ · »-♡→ SCOTTY , SCOTT , KATSUKI , DENKI <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7ddec5dd-8e29-42e5-9160-e37be1919335" />
+˚₊ · »-♡→ Hezekiah , Katsuki <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7ddec5dd-8e29-42e5-9160-e37be1919335" />
 
 
-˚₊ · »-♡→ HE . BOOM . ELECTRIC - USE MASC TERMS ON ME. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d044eb7f-8150-45e6-8103-72ee199b91a5" />
+˚₊ · »-♡→ HE . VOID , BOOM. - USE MASC TERMS ON ME. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d044eb7f-8150-45e6-8103-72ee199b91a5" />
 
-˚₊ · »-♡→ ADHD , AUTISM , DYSLEXIA , ANXIETY , ETC
+˚₊ · »-♡→ AUDHD, bipolar, dissociative amnesia , dyslexia + more on rentry
 
-˚₊ · »-♡→ **I CAN HARDLY REMEMBER THINGS FROM YESTERDAY ( OR HOURS AGO )**
+˚₊ · »-♡→ taken - flirting friends only with permission
 
-˚₊ · »-♡→ HITOSHI SHINSOS N1. FAN!!! ( BNHA / MHA )
-
-˚₊ · »-♡→ I'M TAKEN, I LOVE MY BOYFRIEND < 3 
-
-˚₊ · »-♡→ I AM PANSEXUAL. <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/12a5b731-53df-4d8c-9b6a-88bad127e25c" />
+˚₊ · »-♡→ pansexual + fast falling romantic <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/12a5b731-53df-4d8c-9b6a-88bad127e25c" />
 
 
 ˚₊ · »-♡→ **I LACK EMPATHY.**
@@ -24,7 +20,7 @@
 
 ## btw
 
-˚₊ · »-♡→ i am NOT coming back to you IF YOU blocked **ME**.
+I will mainly be with my partner or sibling, I will try to interact
 
 ## hmu / int
 
