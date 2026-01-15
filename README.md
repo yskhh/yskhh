@@ -1,29 +1,23 @@
-## BEFORE YOU INTERACT
+## mainly to link for websites... to show info about me
 
-˚₊ · »-♡→ Hezekiah , Katsuki <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/7ddec5dd-8e29-42e5-9160-e37be1919335" />
+˚₊ · »-♡→ NAME : HEZEKIAH
 
+˚₊ · »-♡→ PRONOUNS: HE . VOID . BOOM (PREFERABLY HE . HIM ) **USE MASC TERMS PLEASE.**
 
-˚₊ · »-♡→ HE . VOID , BOOM. - USE MASC TERMS ON ME. <img width="20" height="20" alt="image" src="https://github.com/user-attachments/assets/d044eb7f-8150-45e6-8103-72ee199b91a5" />
+˚₊ · »-♡→ : ADHD , AUTISM , BORDERLINE PERSONALITY DISORDER(BPD) , DISSOSIATIVE AMNESIA , PSYCHOSIS 
 
-˚₊ · »-♡→ AUDHD, bipolar, dissociative amnesia , dyslexia + more on rentry
+˚₊ · »-♡→ : I am taken, if i add someone to my bio thats not my partner
 
-˚₊ · »-♡→ taken - flirting friends only with permission
+˚₊ · »-♡→ ask for interests please
 
-˚₊ · »-♡→ pansexual + fast falling romantic <img width="60" height="60" alt="image" src="https://github.com/user-attachments/assets/12a5b731-53df-4d8c-9b6a-88bad127e25c" />
+˚₊ · »-♡→ i come off dry , i most likely don't mean it, k?
 
+˚₊ · »-♡→ also tell me if i upset you, **I HAVE AUTISM** so its confusing
 
-˚₊ · »-♡→ **I LACK EMPATHY.**
-
-## heres my links.
+## LINKS -
 
 ˚₊ · »-♡→ https://rentry.co/yskhh
 
-## btw
+## FYI
 
-I will mainly be with my partner or sibling, I will try to interact
-
-## hmu / int
-
-˚₊ · »-♡→ honestly i dont know what i like anymore.
-
-<img width="385" height="29" alt="image" src="https://github.com/user-attachments/assets/9498bb56-e139-462e-8760-f6a20d5bff6e" />
+˚₊ · »-♡→ i dont pay attention to who i follow so uhh if im following someone bad lmk 
